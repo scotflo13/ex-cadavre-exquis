@@ -16,6 +16,15 @@ La curiosité le poussa à lire ce papier, malgré sa résistance, il lut "l'homme p
 
 L'homme observa la carte attentivement et se rendis compte qu'elle ne ressemblait pas aux cartes qu'il connaissait, celle-ci semblait plus ancienne. après quelques minutes d'observation, il remarqua sur celle-ci un endroit qui était plus détailler que le reste de la carte. Elle semblait désigner la grande bibliothèque de Londres, fondée en 1973 avec ses 14 millions de livres et sa grande , l'homme la connaissait bien, il y a passer des milliers d'heures traversant sa grande cour.
 
+
+Pourtant malgres ses doigt 'casser' par le froid ses blessure psychologique
+et sa grande fatigue due a son aventure sa motivation rester inchangée.
+Il continuait son chemin las,mais motiver par l immense récompense qui l attendais,due moins la recompense dont il espere tirez profit, ces histoire extraordinaire qui on bercer son enfance et fait rever tans des ces citadin et villageois, lui seul etait reeelement pres a reussir la ou tout les autre explorateur riche entrepreneur chasseur de tresor etc. ne faiser que passer alors qu il penseait froler ces lieu  magique dont il etait en realiter si loin.
+
+
+
+
+
 Il décida d'y aller sans savoir ce qu'il y trouverai...
 
 La pluie n'ayant pas cesser de battre, il revut l'homme au masque entrer dans la bibliothèque, celui-ci ayant lu la lettre, savait déjà se qu'elle contenait.
